@@ -2,9 +2,9 @@
 ######  The Economist January 25th 2020
 # Chaguan | More equal than others
 
->> A year of Euro-summits will reveal much about China’s worldview
+> A year of Euro-summits will reveal much about China’s worldview
 
->> 今年的欧洲峰会将会显现出中国的世界观。
+> 今年的欧洲峰会将会显现出中国的世界观。
 
 If judged by words, rather than deeds, China is the world’s most powerful supporter of European unity. At a time when populist leaders such as President Donald Trump barely conceal their scorn for the European Union and other multilateral institutions, China talks of deepening and strengthening ties with the EU and other international bodies dear to Europeans.
 
@@ -27,11 +27,13 @@ China has a counter-message. In April it will host a summit of a grouping known 
 
 中国有一个对冲的消息。今年四月份，中国将举办“17+1”峰会。这个峰会创建于2012年，是中国与12个欧盟国家--保加利亚，克罗地亚，捷克共和国，爱沙尼亚，希腊，匈牙利，拉脱维亚，立陶宛，波兰，罗马尼亚，斯洛伐克以及斯洛文尼亚；和5个意向加入欧盟的国家--阿尔巴尼亚，波斯尼亚和黑塞哥维那，黑山共和国，北马其顿和塞尔维亚。近些年，这个组织中的欧盟成员国之间开始产生不满。多数看不到中国投资桥梁，道路和其他基础设施的希望，并且他们的农产品和其他商品仍然难以进入中国市场。看到这些问题，中国更新了今年的17+1峰会。这个峰会将会在北京由习先生主持，而不是之前一直负责主持这个会议的总理李克强。
 
+Chaguan asked half a dozen European ambassadors in Beijing whether China was a source of unity or disunity in their continent. The question divided them. One diplomat calls the 17+1 grouping a mostly benign attempt by China to re-establish fraternal links with ex-socialist countries, and no more divisive than the endless bilateral exchanges that bigger countries, like Germany or France, have with China. Still, he concedes, if China sees a chance to get its way by driving wedges between EU members, it will. “The Chinese take the EU as seriously as the EU takes itself. They are taking advantage of the opportunities we give them,” he says.
 
+茶馆栏目咨询了六个在北京的欧洲大使，中国带给欧洲的是团结还是分裂。他们的回答各有不同。一位外交官称“17+1”组织是中国最善意的尝试，旨在与前社会主义国家建立兄弟般的友谊，与德国法国等大国进行无休止的讨价还价相比，不会造成更多的分裂。他同时承认，如果中国发现一条造成欧盟成员国之间障碍的路，它会这样做的。“中国对待欧盟的认真程度与欧盟对待自己的程度一样。他们需要我们带来的机会。“他说。
 
+Other envoys relate how China, a bureaucratic superpower, pushes 17+1 members to attend hundreds of sub-meetings on everything from food safety to cultural co-operation, generating blizzards of Chinese-drafted documents. Each must be checked for phrases which either encroach on areas of lawmaking which members cede to the eu, or which advance China’s worldview. Recent 17+1 drafts talk about co-operation on the basis of the sovereignty of participating countries, worries a diplomat, seeing a coded Chinese challenge to multilateralism and European values. Such papers are a “sneaky way to test how vigilant we are”, he sighs.
 
-
-
+其他大使提到了中国这样的官僚主义的超级大国，怎样让17+1组织成员参加上百个会议讨论从食品安全到文化合作等方面的事务，然后产生
 
 
 
