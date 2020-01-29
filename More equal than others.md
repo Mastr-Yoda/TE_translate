@@ -31,15 +31,29 @@ Chaguan asked half a dozen European ambassadors in Beijing whether China was a s
 
 茶馆栏目咨询了六个在北京的欧洲大使，中国带给欧洲的是团结还是分裂。他们的回答各有不同。一位外交官称“17+1”组织是中国最善意的尝试，旨在与前社会主义国家建立兄弟般的友谊，与德国法国等大国进行无休止的讨价还价相比，不会造成更多的分裂。他同时承认，如果中国发现一条造成欧盟成员国之间障碍的路，它会这样做的。“中国对待欧盟的认真程度与欧盟对待自己的程度一样。他们需要我们带来的机会。“他说。
 
-Other envoys relate how China, a bureaucratic superpower, pushes 17+1 members to attend hundreds of sub-meetings on everything from food safety to cultural co-operation, generating blizzards of Chinese-drafted documents. Each must be checked for phrases which either encroach on areas of lawmaking which members cede to the eu, or which advance China’s worldview. Recent 17+1 drafts talk about co-operation on the basis of the sovereignty of participating countries, worries a diplomat, seeing a coded Chinese challenge to multilateralism and European values. Such papers are a “sneaky way to test how vigilant we are”, he sighs.
+Other envoys relate how China, a bureaucratic superpower, pushes 17+1 members to attend hundreds of sub-meetings on everything from food safety to cultural co-operation, generating blizzards of Chinese-drafted documents. Each must be checked for phrases which either encroach on areas of lawmaking which members cede to the EU, or which advance China’s worldview. Recent 17+1 drafts talk about co-operation on the basis of the sovereignty of participating countries, worries a diplomat, seeing a coded Chinese challenge to multilateralism and European values. Such papers are a “sneaky way to test how vigilant we are”, he sighs.
 
-其他大使提到了中国这样的官僚主义的超级大国，怎样让17+1组织成员参加上百个会议讨论从食品安全到文化合作等方面的事务，然后产生
+其他大使提到了中国这样的官僚主义的超级大国，怎样推动17+1组织成员参加上百个会议讨论从食品安全到文化合作等方面的事务，然后产生由中国起草的文件。每个文件都需要字斟句酌，使得既不侵犯欧盟占有的各成员国放弃的立法权，又不能侵犯中国的世界观。最近17+1组织草案讨论了建立在成员国主权基础上的合作，显示了中国多多边主义和欧洲价值观的挑战，一位大使为此担忧。他说到，这种协议是“用狡猾的方式来测试我们警惕性“。
 
+China is currently urging 17+1 leaders to express political support for Mr Xi’s global plan for Chinese-led infrastructure projects, the Belt and Road Initiative. Some envoys call the BRI a useful source of investment, and shrug at pressure to praise it as harmless propaganda. Others are more doubtful, noting how strict EU laws on public procurement or sustainable debt mean that rather few Chinese infrastructure contracts are signed inside the union. That encourages China to sign murkier deals on the EU’s periphery.
 
+中国目前正要求17+1各国领导人表达对习先生的国际计划的支持，即由中国领导的一带一路倡议。一些大使称“一带一路”是有用的投资来源，压力下耸耸肩称赞它是无害的宣传。其他大使持怀疑态度，他们指出欧盟法律对公共采购和持续性债务很严格，这导致中国的基础设施协议能在这个组织中达成的数量很少。这鼓励中国同欧盟外围签署模糊的协议。
 
+Some detect serious intent when Chinese officials work tirelessly to fill draft statements with empty-seeming phrases, such as Mr Xi’s call to build a “community with a shared future for mankind”. To that wary camp, it is no comfort when China says this or that document is non-binding, so hurry up and sign. If countries start routinely using Chinese vocabulary in international forums, when disputes arise China will be the logical arbiter, they say.
 
+当中国官方不知疲倦的用空洞的词汇填充声明草案的时候，比如习先生的构建“人类命运共同体”的说法，一些大使在其中感受到了认真的意图。对于这些警惕的阵营，当中国生成这些文件不具有约束力，赶快签署的时候，他们感到不舒服。如果他们在国际论坛上开始常规使用这些中国创造的词汇，当发生纷争的时候，中国就成了逻辑上的仲裁者，他们说。
 
+######Orbiting a red giant
 
+######绕开红色巨人
+
+European countries agree on some points. For one, they each crave bilateral favours from China, but fear being left to confront such an assertive giant alone. For a while Chinese officials caused alarm by calling the Leipzig summit a “27+1” meeting, as if Mr Xi were an emperor receiving tributary kingdoms, as one envoy puts it, or a sun around which European planets revolve. Chinese diplomats even questioned whether there would be time for an annual EU-China summit, an event involving the EU’s top officials but not its members’ leaders. China eventually agreed to hold one in late March, and to use it to plan the larger gatherings that follow.
+
+欧洲国家在一些观点上达成共识。比如，他们都渴望与中国互相青睐，但是他们都害怕单独面对这样一个自信的巨人。有一段时间，中国官方称这次的莱比锡峰会为“27+1”会议曾引起震惊，就好像习先生是一个接受朝贡的皇帝，或者是一个太阳，欧洲这颗行星围着他转。一位大使说到。中国的大使甚至问到过，欧盟领导人（而不是欧洲各国领导人）是否有时间参加一年一度的欧中峰会。中国最终同意在三月底举办一次会议，用来筹划随后的大型聚会。
+
+The Europeans also concur that they must keep America in mind when dealing with China. Some diplomats suggest that if China were to agree on an investment treaty with the EU, the price could be an EU promise to keep selling high technology to Chinese firms, no matter what America thinks. But if told to choose between China and America, Europeans’ horror would be unanimous. That is not the Euro-unity that China has in mind. 
+
+欧洲国家同时认为，与中国合作的时候必须考虑到美国。一些大使建议，如果欧洲与中国达成了一项投资协议，欧盟付出的代价就是欧盟承诺售卖高科技产品给中国企业，而无法考虑美国的想法。但是如果被迫选择中国或者美国的话，所有欧洲国家都会感到恐惧。那不是中国想象中的欧元区。
 
 
 
