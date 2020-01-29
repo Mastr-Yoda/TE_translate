@@ -43,9 +43,9 @@ Some detect serious intent when Chinese officials work tirelessly to fill draft 
 
 当中国官方不知疲倦的用空洞的词汇填充声明草案的时候，比如习先生的构建“人类命运共同体”的说法，一些大使在其中感受到了认真的意图。对于这些警惕的阵营，当中国生成这些文件不具有约束力，赶快签署的时候，他们感到不舒服。如果他们在国际论坛上开始常规使用这些中国创造的词汇，当发生纷争的时候，中国就成了逻辑上的仲裁者，他们说。
 
-######Orbiting a red giant
+###### Orbiting a red giant
 
-######绕开红色巨人
+###### 绕开红色巨人
 
 European countries agree on some points. For one, they each crave bilateral favours from China, but fear being left to confront such an assertive giant alone. For a while Chinese officials caused alarm by calling the Leipzig summit a “27+1” meeting, as if Mr Xi were an emperor receiving tributary kingdoms, as one envoy puts it, or a sun around which European planets revolve. Chinese diplomats even questioned whether there would be time for an annual EU-China summit, an event involving the EU’s top officials but not its members’ leaders. China eventually agreed to hold one in late March, and to use it to plan the larger gatherings that follow.
 
